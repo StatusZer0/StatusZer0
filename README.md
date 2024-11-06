@@ -1,8 +1,7 @@
 idk what to say here so I'll paste my discord bio
 
-- Canadian Programmer
-- Having a big Minecraft phase (I’m down to play multiplayer if you wanna)
+- Canadian Programmer & Game Dev
 - Your not average trans lesbian catgirl :3
-- DM's open for anything (except nsfw or bigotry)
+- DM's open if you wanna be friends/want to ask anything
 
-btw my discord is the.real.zer0 if you wanna chat
+btw my discord is _statuszer0 if you wanna chat
