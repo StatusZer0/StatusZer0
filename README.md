@@ -1,5 +1,6 @@
-idk what to say here so I'll paste my discord bio
-
+Call me Amelia!
 - British-Canadian Programmer & Game Dev
 - Not your average catgirl :3
-- Don't blame me if I procrastinate on something
+- Stupid and dumb as hell
+
+https://en.pronouns.page/@StatusZer0
